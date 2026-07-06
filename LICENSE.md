@@ -1,4 +1,4 @@
-
+Goose VPN elite Client: L2TP-support & streaming-optimization offers the most advanced Goose VPN client, with L2TP-support and streaming-optimization. Ideal for users who value
 
 
 
